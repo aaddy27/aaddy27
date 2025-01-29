@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Aditya Acharya
+- 👀 I’m interested in development
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on compamy level projects
+- 📫 How to reach me email at adityaacharya910@gmail.com
